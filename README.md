@@ -4,6 +4,6 @@
 
 Contact on Discord : Darkon#2990
 
-. Please tell me only in Polish because, i don't understand many words in english language ;).
+. Please speak to me only in Polish or simply English because, i don't understand many words in english language ;).
 
 Sorry for my bad English :D
